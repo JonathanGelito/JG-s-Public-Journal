@@ -1,0 +1,1 @@
+# JG-s-Public-Journal
